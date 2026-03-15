@@ -1,4 +1,6 @@
-# EXTRAS
+# CHEATS
+
+1. open "bookmarks and lists" 2. go to add page on dashboard.blooket.com 3. paste the code from Blooket cheats
 
 # WEBSITES
 
